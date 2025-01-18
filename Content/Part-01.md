@@ -83,6 +83,14 @@
 
 <hr />
 
-### Sie fandeine hubsche trockene
+### Sie fand eine hübsche trockene Höhle, um sich niederzulegen; das war besser als ein Haufen von welkem Laub, und sie streute saubern Sand auf den Boden und entfachete ein nettes Holzfeuer hinten in der Höhle; und sie hängte die getrocknete Haut eines wilden Pferdes, schwanzunter, vor die Öffnung der Höhle; und sie sagte; "Tritt dir die Fuße ab, Lieber, wenn du reinkommst; und jetzt wollen wir hier einen richtigen Haushalt haben."
+
+Она нашла красивую сухую пещеру, чтобы прилечь; это было лучше, чем куча сухих листьев, и она рассыпала землю чистым песком и разожгла красивый дровяной костер в задней части пещеры; и она повесила высушенную шкуру дикой лошади с хвостом перед входом в пещеру; и она сказала; «Оттолкнись, дорогая, когда войдешь; а теперь мы хотим иметь здесь настоящее хозяйство».
+
+### Diese Nacht, mein Schatz, aßen sie Fleisch vom wilden Schaf, auf heißen Steinen gebraten und mit wildem Knoblauch und wildem Pfeffer gewürzt; und sie aßen wilde Ente, gefüllt mit wildem Reis und wildem Bockshornklee und wildem Koriander; und sie aßen Markknochen vom wilden Ochsen und wilde Kirschen und wilde Granatäpfel.
+
+В ту ночь, моя дорогая, они ели мясо дикой баранины, поджаренное на раскаленных камнях и приправленное черемшой и диким перцем; и они ели дикую утку, фаршированную диким рисом, диким пажитником и диким кориандром; и они ели костный мозг дикого быка, и дикую вишню, и дикие гранаты.
+
+
 
 
