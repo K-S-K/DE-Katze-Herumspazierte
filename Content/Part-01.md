@@ -91,6 +91,31 @@
 
 В ту ночь, моя дорогая, они ели мясо дикой баранины, поджаренное на раскаленных камнях и приправленное черемшой и диким перцем; и они ели дикую утку, фаршированную диким рисом, диким пажитником и диким кориандром; и они ели костный мозг дикого быка, и дикую вишню, и дикие гранаты.
 
+### Dann Ging der Mann schlafen, dicht am Feuer, und es war ihm sehr behaglich.
+
+Потом мужчина заснул рядом с огнем, и ему было очень комфортно.
+
+
+### Aber die Frau setzte sich aufrecht hin und kämmte ihre Haare.
+
+Но женщина сидела прямо и причесывалась.
+
+
+### Sie nahm einen Schulterknochen vom Hammel - das große flache Schulterblatt - und schaute auf die wunderschönen Zeichen darauf und warf mehr Holz aufs Feuer und machte einen Zauber.
+
+Она взяла баранью плечевую кость — большую плоскую лопатку — и посмотрела на красивые отметины на ней, подбросила в огонь еще дров и произнесла заклинание.
+
+
+### Sie erfand den ersten Singsauber der Welt.
+
+Она изобрела первое в мире чистое пение.
+
+
+### Draußen im Nassen Wilden Wald versammelten sich alle wilden Tiere an einer Stelle, von wo aus sie das Licht des Feuers von Weitem sehn konnten, und fragten sich, was es bedeutete.
+
+Во влажном диком лесу все дикие животные собрались в месте, где они могли видеть свет костра издалека, гадая, что это значит.
+
+
 
 
 
